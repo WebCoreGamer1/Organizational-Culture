@@ -1,2 +1,1 @@
-# Organizational-Culture
-&lt;World Economic Forum - Strategic Intelligence&lt; 
+Organizational-Culture; World Economic Forum - Strategic Intelligence.
